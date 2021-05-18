@@ -1,0 +1,2 @@
+# ADMIN
+JANGAN LUPA FOLLOW! @Mantap.skuy
